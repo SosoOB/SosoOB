@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SosoOB
+- 👀 I’m interested in: gatos, arte
+- 🌱 I’m currently learning: a desenhar 
+- 💞️ I’m looking to collaborate on: meus gatos que são programadores
+- 📫 How to reach me: não sei 
+- 😄 Pronouns: Harry/ Theo
+- ⚡ Fun fact: meu dedo indicador esquerdo é torto
